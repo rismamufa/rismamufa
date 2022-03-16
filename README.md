@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rismamufa
 - 👀 I’m interested in culinary
 - 🌱 I’m currently learning accounting
-- 💞️ I’m looking to collaborate on free outfit and beverages
+- 💞️ I’m looking to collaborate on free outfit
 - 📫 How to reach me @rismamufa (instagram)
